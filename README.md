@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... coding at SMU
 - 💞️ I’m looking to collaborate on ... new learning tools to create amazing business proposals
 - 📫 How to reach me ... phone - Call/ Email - Text/ still working on telekinesis
-- 😄 Pronouns: ... no preference. my name is fine
+- 😄 Pronouns: ... no preference. my name is enough for me.
 - ⚡ Fun fact: ... I like salted butter... like a lot.
 
 <!---
